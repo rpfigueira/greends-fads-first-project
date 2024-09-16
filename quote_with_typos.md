@@ -1,4 +1,4 @@
-“There are people like Senhor José everywhere, who fill their tiem, or
+“There are people like Senhor José everywhere, who fill their time, or
 what they believe to be their spare time, by collecting stmps, coins,
 medals, vases, postcards, matchboxes, boks, clocks, sport shirts,
 autographs, stones, clay figurines, empty beverge cans, little angels,
